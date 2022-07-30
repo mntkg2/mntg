@@ -1,1 +1,7 @@
 # mntg
+
+ssd
+
+dde
+
+cce
